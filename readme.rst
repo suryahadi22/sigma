@@ -33,7 +33,7 @@ Support
 
 jika ada yang salah / perlu pembenahan.
 Hubungi saya di suryahadieh@gmail.com
-Lihat demonya di http://suryanets.com/sigma
+My Website is https://suryahadi.com | visit me
 
 License
 -------
